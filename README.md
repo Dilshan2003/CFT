@@ -1,2 +1,0 @@
-# CFT
-Creators Of Tomorrow
